@@ -11,10 +11,10 @@
 [Top 22 UI/UX Trends to dominate in the year 2023](http://think360.ca/blog/ui-ux-trends-2023)
 
 #SaaS-Applications
-[SaaS-Applications-helping-Your-Online-Or-Offline-Business] (https://think360studio.com/blog/saas-applications)
+[SaaS-Applications-helping-Your-Online-Or-Offline-Business](https://think360studio.com/blog/saas-applications)
 
 #36-Amazing-Serif-Fonts
-[Free 36 Amazing Serif Fonts For Modern Websites] (https://think360studio.com/blog/free-36-serif-fonts-modern-websites)
+[Free 36 Amazing Serif Fonts For Modern Websites](https://think360studio.com/blog/free-36-serif-fonts-modern-websites)
 
 #mobile-apps-in-2023
-[30 Striking Mobile App Trends in 2023] (https://think360studio.com/blog/30-striking-mobile-app-trends-in-2023)
+[30 Striking Mobile App Trends in 2023](https://think360studio.com/blog/30-striking-mobile-app-trends-in-2023)
